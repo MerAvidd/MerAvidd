@@ -4,7 +4,7 @@
  
  <p align ="center"> pfp art by Mintiyefresh on twt
  <p align="center"> $${\color{Fuchsia}
-  SCOTT    or    GEM }$$
+  AVID    or    SCOTT }$$
 <p align="center"> $${\color{purple}
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
 <p align="center"> $${\color{Fuchsia}
