@@ -1,4 +1,4 @@
-![alt text](https://media.discordapp.net/attachments/1052873893028843574/1488803850533077173/Untitled444_20260401023341.png?ex=69ce1c22&is=69cccaa2&hm=dd9dd2afce9654e5eedf66dd21be55995de66a8374238ad9e605dec910e536fd&=&format=webp&quality=lossless&width=1768&height=149)
+![alt text](https://shorturl.at/dACjm)
 <p align="center">               
 <p align ="center"> <img src="https://media.discordapp.net/attachments/1052873893028843574/1488802356782039071/Untitled276_20260401022853.png?ex=69ce1abe&is=69ccc93e&hm=e2d40696873bd06628a8f210e669ee848d057f891fb18ddf5963042fd01c844d&=&format=webp&quality=lossless" width="500" height="600">
  
@@ -35,7 +35,7 @@
   If‎ you‎ know‎ me‎ from‎ my‎ past‎ user‎ no‎ you‎ dont}$$   ♡ 彡    ⁎    ⁺
 <img src="https://i.ibb.co/n3VrsDM/IMG-7161.gif"
 
-![alt text](https://media.discordapp.net/attachments/1052873893028843574/1488803851036524724/Untitled445_20260401023435.png?ex=69ce1c22&is=69cccaa2&hm=e90b713fc8259262d175f862dc50b2fa5f5fdb438b8ef21046ad7a95f53daada&=&format=webp&quality=lossless&width=1768&height=149)
+![alt text](https://shorturl.at/Unk4K)
 
 
 
