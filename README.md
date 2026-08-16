@@ -29,7 +29,7 @@
         
  <p align ="center">  
 ⋆  ۪      ♩    ┈    
- <p align="center"> $${\color{magenta}
+ <p align="center"> $${\color{blue}
   If‎ you‎ know‎ me‎ from‎ my‎ past‎ user‎ no‎ you‎ dont}$$   ♡ 彡    ⁎    ⁺
 <img src="https://i.ibb.co/n3VrsDM/IMG-7161.gif"
 
