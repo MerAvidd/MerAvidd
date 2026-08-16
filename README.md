@@ -7,7 +7,7 @@
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
 <p align="center"> $${\color{white}
   he /they     minor     infp }$$
-<p align="center">  $${\color{cyan} 
+<p align="center">  $${\color{lightskyblue} 
  ♱   ｡ ﾟ 𐑂   𝘴𝘵𝘢𝘺 ‎ 𝘸𝘪𝘵𝘩 ‎ 𝘮𝘦 . . . . * ﹆ﾟ i ‎ 𝘥𝘰𝘯'𝘵‎  𝘸𝘢𝘯𝘵 ‎ 𝘺𝘰𝘶 ‎ 𝘵𝘰‎  𝘭𝘦𝘢𝘷𝘦 ﾟ ★ }$$ 
  <p align="center">  
  
