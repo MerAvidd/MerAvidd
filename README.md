@@ -1,6 +1,6 @@
 ![alt text](https://shorturl.at/dACjm)
 <p align="center">               
-<p align ="center"> <img src="https://media.discordapp.net/attachments/1052873893028843574/1488802356782039071/Untitled276_20260401022853.png?ex=69ce1abe&is=69ccc93e&hm=e2d40696873bd06628a8f210e669ee848d057f891fb18ddf5963042fd01c844d&=&format=webp&quality=lossless" width="500" height="600">
+<p align ="center"> <img src="https://media.discordapp.net/attachments/1052873893028843574/1538376333355257936/Untitled489_20260815213812.png?ex=6a82741b&is=6a81229b&hm=cd35bc1dce3972082afe26fcaf74b2a9e8da406ac5c0ddf02c56d319728ee902&=&format=webp&quality=lossless" width="500" height="600">
   <p align ="center"> I DO NOT SUPPORT AVID AND IM PLANNING ON REVAMPING MY WHOLE PROFILE
  <p align ="center"> pfp art by Mintiyefresh on twt
  <p align="center"> $${\color{Fuchsia}
