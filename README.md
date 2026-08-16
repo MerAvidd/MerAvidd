@@ -7,13 +7,13 @@
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
 <p align="center"> $${\color{white}
   he /they     minor     infp }$$
-<p align="center">  $${\color{purple} 
+<p align="center">  $${\color{cyan} 
  ♱   ｡ ﾟ 𐑂   𝘴𝘵𝘢𝘺 ‎ 𝘸𝘪𝘵𝘩 ‎ 𝘮𝘦 . . . . * ﹆ﾟ i ‎ 𝘥𝘰𝘯'𝘵‎  𝘸𝘢𝘯𝘵 ‎ 𝘺𝘰𝘶 ‎ 𝘵𝘰‎  𝘭𝘦𝘢𝘷𝘦 ﾟ ★ }$$ 
  <p align="center">  
  
- <p align="center"> $${\color{magenta}
+ <p align="center"> $${\color{lightskyblue}
   hi!!!‎  call ‎ me ‎ Dolphin ‎ Or ‎ Scott}$$
-  <p align="center"> $${\color{purple}
+  <p align="center"> $${\color{blue}
    or    whatever    pony    im    in  }$$
 
   <p align ="center"> <img src="https://cdn.discordapp.com/emojis/1113872942758105168.webp?size=40&quality=lossless" 
@@ -21,7 +21,7 @@
                      
   
 
-  <p align="center"> $${\color{purple}
+  <p align="center"> $${\color{white}
   lwk‎  kinda‎  scared ‎ of‎  past ‎ friends ‎ finding‎  me }$$ <img src="https://i.ibb.co/pb3jP7W/IMG-6364.gif"
    <p align ="center">  
  
