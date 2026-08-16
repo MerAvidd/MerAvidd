@@ -1,10 +1,8 @@
 ![alt text](https://shorturl.at/dACjm)
 <p align="center">               
 <p align ="center"> <img src="https://media.discordapp.net/attachments/1052873893028843574/1538376333355257936/Untitled489_20260815213812.png?ex=6a82741b&is=6a81229b&hm=cd35bc1dce3972082afe26fcaf74b2a9e8da406ac5c0ddf02c56d319728ee902&=&format=webp&quality=lossless" width="250" height="400">
-  <p align ="center"> I DO NOT SUPPORT AVID AND IM PLANNING ON REVAMPING MY WHOLE PROFILE
- <p align ="center"> pfp art by Mintiyefresh on twt
  <p align="center"> $${\color{Fuchsia}
-  AVID    or    SCOTT }$$
+  Dolphin    or    SCOTT }$$
 <p align="center"> $${\color{purple}
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
 <p align="center"> $${\color{Fuchsia}
@@ -14,7 +12,7 @@
  <p align="center">  
  
  <p align="center"> $${\color{magenta}
-  hi!!!‎  call ‎ me ‎ Avid ‎ Or ‎ Scott}$$
+  hi!!!‎  call ‎ me ‎ Dolphin ‎ Or ‎ Scott}$$
   <p align="center"> $${\color{purple}
    or    whatever    pony    im    in  }$$
 
