@@ -3,7 +3,7 @@
 <p align ="center"> <img src="https://media.discordapp.net/attachments/1052873893028843574/1538376333355257936/Untitled489_20260815213812.png?ex=6a82741b&is=6a81229b&hm=cd35bc1dce3972082afe26fcaf74b2a9e8da406ac5c0ddf02c56d319728ee902&=&format=webp&quality=lossless" width="250" height="400">
  <p align="center"> $${\color{lightskyblue}
   Dolphin    or    SCOTT }$$
-<p align="center"> $${\color{blue}Blue}$$
+<p align="center"> $${\color{blue}Blue}
    C+H    is ‎  ok    also‎  feel ‎ free‎  to ‎ int! }$$
 <p align="center"> $${\color{Fuchsia}
   he /they     minor     infp }$$
